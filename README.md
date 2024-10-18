@@ -1,4 +1,4 @@
-## Hi, I'm Sage!
+## Hi, I'm Sage
 
 (they/them)
 
